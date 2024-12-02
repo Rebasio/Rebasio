@@ -3,7 +3,7 @@
 ---
 
 💡 Passionné un jour, passionné toujours <br>
-🎞️ [Chaîne Youtube]((https://www.youtube.com/@lmf-w))  
+🎞️ [Chaîne Youtube](https://www.youtube.com/@lmf-w)  
 
 
 ## 🧠 - **Stacks techniques**  
