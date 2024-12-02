@@ -2,7 +2,7 @@
 
 ---
 
-💡 Passionné un jour, passionné toujours
+💡 Passionné un jour, passionné toujours <br>
 🎞️ [Chaîne Youtube]((https://www.youtube.com/@lmf-w))  
 
 
